@@ -1,6 +1,6 @@
 ## My Motto
 Passion means everything.
 
-Embrace uncertaity.
+Embrace uncertainty.
 
 Defend the rights of outliers.
