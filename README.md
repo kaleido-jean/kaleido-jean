@@ -1,4 +1,4 @@
-## My Motto
+## Words to myself
 Time is priceless, do what you are passionate about.
 
 Embrace uncertainty.
