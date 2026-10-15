@@ -1,5 +1,5 @@
 ## My Motto
-Passion means everything.
+Time is priceless, do what you are passionate about.
 
 Embrace uncertainty.
 
